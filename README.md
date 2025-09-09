@@ -1,4 +1,4 @@
-# Archivo Histórico Digital de Baranoa Historica - Patrimonial - Digital,
+# Repositorio Histórico Digital de Baranoa Historica - Patrimonial - Cultural.
 
 ## 📚 Acervo Documental Digital
 
